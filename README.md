@@ -44,4 +44,4 @@ fnaf security breach | sky children of the light | just shapes and beats .
 
 ![Image](https://github.com/user-attachments/assets/7626d85a-8888-4281-9d59-aafdf6a0d930)
 
-### **THANKS FOR READING !**
+### **ℋ𝒶𝓋ℯ 𝒶 𝓃𝒾𝒸ℯ 𝒹𝒶𝓎!**
