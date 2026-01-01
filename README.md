@@ -13,6 +13,8 @@
 
 - I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
+- also am late to trends and things like that , so if u were talking about them , i wont understand.
+
 - sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
 
   - I dont accpet random friend/party req ,  if this happens i block the person/pony .
