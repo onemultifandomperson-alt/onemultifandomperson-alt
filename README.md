@@ -34,7 +34,7 @@ I also get distracted so easily .💔
 
  <div align="center">
   <details>
-    <summary>characters</summary>
+    <summary>characters🎭</summary>
     <p align="center">
     
 charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
@@ -46,7 +46,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
 
 <div align="center">
   <details>
-    <summary>Games</summary>
+    <summary>Gamesඞ</summary>
     <p align="center">
     Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats . 
     </p>
@@ -54,7 +54,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
 
  <div align="center">
   <details>
-    <summary>music</summary>
+    <summary>music♬.ᐟ</summary>
     <p align="center">
     IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREEDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto)...etc
     </p>
@@ -62,7 +62,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
 
   <div align="center">
   <details>
-    <summary>hobbies</summary>
+    <summary>hobbies✮⋆˙</summary>
     <p align="center">
 reading , playing games , watching T.V / films , coding , creating ocs , baseball , football , basketball , borad games , Playing musical instruments , listing to music , bakeing / cooking , drawing . 
     </p>
