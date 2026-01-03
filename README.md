@@ -1,8 +1,9 @@
-# **こんにちは  !!!**
+<div align="center"> こんにちは  !!!
 
   ![Image](https://github.com/user-attachments/assets/ec5b9aeb-43a3-4efc-a175-4371abb3202a)
   
   So..this is just an alt acc for pt. 
+
 
 ## 𝐴𝑛𝑦𝑤𝑎𝑦... 𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒 𝑖𝑓 𝑢 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡.!☆
 
@@ -31,6 +32,10 @@ I also get distracted so easily .💔
 
 
 # **INTERESTS**
+<div align="center">
+  
+ u can click the arrows.
+  
 
  <div align="center">
   <details>
