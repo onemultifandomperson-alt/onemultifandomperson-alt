@@ -1,6 +1,6 @@
 <div align="center"> こんにちは  !!!
 
-  ![helicopter crash](https://img.shields.io/badge/helicopter%20crash-1,482-F04E38)
+  ![helicopter crashs](https://img.shields.io/badge/helicopter%20crashs-1,482-F04E38)
 
   ![Image](https://github.com/user-attachments/assets/ec5b9aeb-43a3-4efc-a175-4371abb3202a)
   
@@ -66,7 +66,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary>music♬.ᐟ</summary>
     <p align="center">
-    IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREEDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto)...etc
+    IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREDDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto)...etc
     </p>
   </details>
 
